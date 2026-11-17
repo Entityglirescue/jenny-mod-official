@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/твоя-картинка.png" alt="Jenny Mod Minecraft Download" width="800">
+  <img src="https://i.postimg.cc/SK3fhzVP/a-high-quality-3d-render-in-th-2026-11-17T21-35-32.png" alt="Jenny Mod Minecraft Download" width="800">
 </p>
 
 <p align="center">
